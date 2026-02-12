@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @aqwarr.
 - 👀 I’m interested in all things creative.
-- 🌱 I’m currently learning about international travel, retirement, AI video and music, tiny home building, and mobile computing.
+- 🌱 I’m currently learning about international travel, retirement, AI video and music, tiny space living, and mobile computing.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
